@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Fantastical for macOS workflow with Fantastical for macOS vip Workflow: database templates & focus mode. Featuring database templates and focus mode, it's the
 
 
 
